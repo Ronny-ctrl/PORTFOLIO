@@ -20,7 +20,7 @@ Check out my repositories for:
 
 
 Let's connect!
-LinkedIn: [Your LinkedIn profile link]
+LinkedIn: [Your LinkedIn profile linkwww.linkedin.com/in/ronny-ronoh-8b45812b0:]
 Email: [ronnyron225@gmail.com]
 Looking forward to collaborating on innovative projects!
 
